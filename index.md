@@ -22,3 +22,5 @@
 ![你当刚强壮胆(20210822)_18](https://user-images.githubusercontent.com/86972384/130360018-ccaeea42-c1a3-4981-b8da-068db907d425.jpg)
 ![你当刚强壮胆(20210822)_19](https://user-images.githubusercontent.com/86972384/130360020-4e591c44-5aef-47c3-9355-32fabe832810.jpg)
 
+## [主日证道汇总](https://nccchurch.github.io/Sermons/)
+
