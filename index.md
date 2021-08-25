@@ -2,7 +2,7 @@
 
 <audio controls src="./210822.mp3"></audio>
 
-![你当刚强壮胆(20210822)_19](https://user-images.githubusercontent.com/86972384/130359958-b250372a-000e-4a38-ab23-8de5f2928451.jpg)
+![你当刚强壮胆(20210822)(1)_2](https://user-images.githubusercontent.com/86972384/130802198-331bdcf8-2e6a-4d74-9acc-4f173eabb979.jpg)
 ![你当刚强壮胆(20210822)_2](https://user-images.githubusercontent.com/86972384/130359968-0efcb9c2-ab4e-43f0-92b6-6e304d3525f8.jpg)
 ![你当刚强壮胆(20210822)_3](https://user-images.githubusercontent.com/86972384/130359971-6082ffdc-cefa-47d4-8e11-be4a09ee2e92.jpg)
 ![你当刚强壮胆(20210822)_4](https://user-images.githubusercontent.com/86972384/130359974-3882527d-3ffd-499c-9829-11de83dce808.jpg)
@@ -13,7 +13,7 @@
 ![你当刚强壮胆(20210822)_9](https://user-images.githubusercontent.com/86972384/130359989-3f3169f1-431e-4be0-baba-0ecac4aaef31.jpg)
 ![你当刚强壮胆(20210822)_10](https://user-images.githubusercontent.com/86972384/130359992-416938bd-2901-45fd-88c0-ad57747ea587.jpg)
 ![你当刚强壮胆(20210822)_11](https://user-images.githubusercontent.com/86972384/130359993-ac6a4cc9-90be-4c7c-a1c4-58761afbf0ac.jpg)
-![你当刚强壮胆(20210822)_12](https://user-images.githubusercontent.com/86972384/130359996-03d4cab7-e130-4300-998b-52008a8911ec.jpg)
+![你当刚强壮胆(20210822)(1)_1](https://user-images.githubusercontent.com/86972384/130802309-cbc6ab0d-0c4d-4e26-b87d-fbbe49c32c63.jpg)
 ![你当刚强壮胆(20210822)_13](https://user-images.githubusercontent.com/86972384/130360000-b6eac447-7b26-4565-a73b-5585b6f0a972.jpg)
 ![你当刚强壮胆(20210822)_14](https://user-images.githubusercontent.com/86972384/130360005-f325da6b-dfc9-4ab7-8997-bcd5ddc9e773.jpg)
 ![你当刚强壮胆(20210822)_15](https://user-images.githubusercontent.com/86972384/130360009-e78cc27e-3051-4b93-936e-2567ca686075.jpg)
