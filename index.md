@@ -20,6 +20,12 @@
 ![你当刚强壮胆(20210822)(1)_16](https://user-images.githubusercontent.com/86972384/130802952-c0a9e63f-a3a8-47c6-b1d6-0cfb614c461a.jpg)
 ![你当刚强壮胆(20210822)(1)_17](https://user-images.githubusercontent.com/86972384/130802971-4ff3026d-2958-4c11-9520-c1f646ce2bb0.jpg)
 ![你当刚强壮胆(20210822)(1)_18](https://user-images.githubusercontent.com/86972384/130802981-5f11e230-16d6-490a-b51f-b0ca434db6f3.jpg)
+![你当刚强壮胆(20210822)(1)_19](https://user-images.githubusercontent.com/86972384/130805606-bde46763-5c8f-4a97-ad32-9aa7b1bd5d1a.jpg)
+![你当刚强壮胆(20210822)(1)_20](https://user-images.githubusercontent.com/86972384/130805662-50ed67f9-e416-49f2-a4e9-dadb894c250b.jpg)
+![你当刚强壮胆(20210822)(1)_21](https://user-images.githubusercontent.com/86972384/130805671-2dc6383f-2da9-4b80-842c-607faf7ac2fb.jpg)
+![你当刚强壮胆(20210822)(1)_22](https://user-images.githubusercontent.com/86972384/130805680-3e37fc60-ecd0-45cb-b128-3b83b0cdeb2f.jpg)
+![你当刚强壮胆(20210822)(1)_23](https://user-images.githubusercontent.com/86972384/130805691-db57f2e7-b666-4b36-9c14-b214711de241.jpg)
+![你当刚强壮胆(20210822)(1)_24](https://user-images.githubusercontent.com/86972384/130805705-7d5d9d1d-73c9-4921-bc5c-2a401e3be9cf.jpg)
 
 
 ## [主日证道汇总](https://nccchurch.github.io/Sermons/)
